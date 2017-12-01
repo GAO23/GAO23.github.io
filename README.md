@@ -2,4 +2,4 @@
 
 My personal website 
 
-Right now I have no website :(
+It is currently under maintenance. 
