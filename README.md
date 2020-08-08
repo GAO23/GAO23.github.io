@@ -2,4 +2,3 @@
 
 My personal website 
 
-It is currently under maintenance. 
